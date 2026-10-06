@@ -13,4 +13,10 @@ STOPPPP
 
 OKAYYYYYY ILL SHOW U
 
-:)BYEEEE
+:)BYEEEE   SORRY FOR THE TYPOS AND BAD VIDEO/PIC WQUALITY
+
+<img width="1910" height="851" alt="image" src="https://github.com/user-attachments/assets/a6cc4b3b-167d-4cab-ac49-dbb339248cd2" />
+
+
+https://github.com/user-attachments/assets/419cd1a6-b066-45af-a2bb-6e937fa9b75b
+
